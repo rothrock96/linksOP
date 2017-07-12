@@ -1,7 +1,7 @@
-https://www.rapidvideo.com/e/FH0AO1JPQ4?autostart=true 80
+https://3.bp.blogspot.com/vc3qieB0EfsvT4ruWvsz4rl8nNShLtqfMNlLWyJL4fxMJ40HqAEXSKOdJ9jZMoQU2tvY9VPd6A=m22 84
 
-https://3.bp.blogspot.com/sE-sa_Hdv1sNa7984M_rDQj61Ka2CcI0m-uuYSwsA0jID13a-GV1z8GkqzGPBqhrlMQATDxL=m22 81
+https://3.bp.blogspot.com/8q5LnzOPaQ_cIgT71-7VHO3qJeN9ShuyG0jrrw7pC4JOjMT05xsL2Uy4Fr7CwcGcbFwKSVSkqA=m22 85
 
-https://3.bp.blogspot.com/hhlM5eNsiO711yJ6TUeOHjaXaTXMxW0hxO2S_BnDkwJ7x6MP9649ZNFoaIPw6eHe6D8CwN7b=m22 82 
+https://3.bp.blogspot.com/3se6daHDR9vW_GPJAzUS_ZZzazCXT4jU-FYKfOX3ZbNeZr2nAdC-FZZO3j5gKcih1fTR5Vyr9Q=m22 86
 
-https://3.bp.blogspot.com/VALNFdBpzJL78YK9UuHpChA5EHQxU5vQjgDmRHVz-8HTyZGQgqZr9nwbY4HNq2VO0dkCzYBnQg=m22 83
+https://3.bp.blogspot.com/tNXx2m0CjejBPg8WGePxuCXIPXkNMfLcsWLXCo9rnV2c9LjKz6DKRmnlKwcGIpZBw8_tq4LC3g=m22 87
