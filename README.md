@@ -1,3 +1,1 @@
-https://www241.playercdn.net/87/2/YoNncrE42Y1_B0w6Qr8gKw/1503008959/170513/827FFKBE42S7CUVSXKGWE.mp4
-
-https://www241.playercdn.net/87/2/Z5PKwXCncH3ZxU40Qn-gJg/1503008404/170513/827FFKBE42S7CUVSXKGWE.mp4 264
+blob:https://streamango.com/8ebed3d0-6c7e-47b0-a7fa-085c29e9a18a 264
