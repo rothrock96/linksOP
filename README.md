@@ -1,1 +1,1 @@
-https://www241.playercdn.net/87/2/vwkiTa7QKf-z6HBXYADKRg/1503008758/170513/827FFKBE42S7CUVSXKGWE.mp4 264
+https://www.rapidvideo.com/e/FF13QRFBKJhttps://www.rapidvideo.com/e/FF13QRFBKJ 264
