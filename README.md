@@ -1,10 +1,6 @@
-www.rapidvideo.com/e/FF2T8NMJUN 468
+www.rapidvideo.com/e/FF2T8NMJUN 468 / www.rapidvideo.com/e/FF149OHBD7 469
 
-www.rapidvideo.com/e/FF149OHBD7 469
-
-www.rapidvideo.com/e/FF149T05UY 470
-
-www.rapidvideo.com/e/FF2T8O32RL 471
+www.rapidvideo.com/e/FF149T05UY 470 / www.rapidvideo.com/e/FF2T8O32RL 471
 
 www.rapidvideo.com/e/FF149GU54Z 472
 
