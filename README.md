@@ -8,7 +8,7 @@ www.rapidvideo.com/e/FF148SB07B 455 / www.rapidvideo.com/e/FF2T8K27NV 456
 
 -----
 
-www.rapidvideo.com/e/FF14EXSSAK 505 / www.rapidvideo.com/e/FF2T9P8LCI 507
+www.rapidvideo.com/e/FF14EXSSAK 505 / www.rapidvideo.com/e/FF2T9P8LCI 507 (usopp ep)
 
 www.rapidvideo.com/e/FF2T9OSD6W 508 / www.rapidvideo.com/e/FF14F0ANIO 509
 
